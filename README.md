@@ -13,3 +13,5 @@ meu nome é Antonio Ricardo
  0001099943516sp@al.educacao.sp.gov.br
 
  @silva_.desativado
+
+![](https://media1.tenor.com/m/FkVQUc5-i_QAAAAd/goodbye-goodbye-guys.gif)
